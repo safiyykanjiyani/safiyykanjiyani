@@ -1,4 +1,4 @@
-💻 Safiyy Kanjiyani 🔒
+#💻 Safiyy Kanjiyani 🔒
 
 Hey there! My name is Safiyy and I am a recent graduate of Reed College with a Bachelor's degree in Computer Science.
 
