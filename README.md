@@ -10,3 +10,5 @@
 ♟ Outside of work, I enjoy studying chess and writing screenplays. I tend to get inspired by watching many indie films. 
 
 🌎 I love to collaborate on things that improve the world so if you're interested, drop me a line. 
+
+Last Updated: June 15, 2022
